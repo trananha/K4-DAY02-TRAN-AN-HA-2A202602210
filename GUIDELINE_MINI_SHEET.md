@@ -3,17 +3,9 @@
 
 **Họ và tên:** Trần An Hạ
 
-
-
-
-
 **MSSV:** 2A202602210
 
-
-
 **Hình thức:** cá nhân
-
-
 
 **Mã cặp:** SOLO
 
